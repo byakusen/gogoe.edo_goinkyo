@@ -1,0 +1,1 @@
+# gogoe.edo_goinkyo
